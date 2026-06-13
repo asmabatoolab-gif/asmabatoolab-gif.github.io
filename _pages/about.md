@@ -20,9 +20,8 @@ My work sits at the intersection of academic research and applied policy — fro
 - Development policy and sustainable development
 - Trade policy and economic diplomacy
 
-## Current Role
 
-I currently work as a **Programme Partner Assistant at HANDS**, Islamabad, where I propose and coordinate project activities, support partner outreach, and manage stakeholder communications across development programmes.
+
 
 ## Education
 
